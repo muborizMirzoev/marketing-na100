@@ -1,1 +1,1 @@
-# marketing-na100
+# [https://muborizmirzoev.github.io/marketing-na100/]
